@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @upstartjohnvandivier
+- For non-work-related-stuffs check me out as @vandivier
